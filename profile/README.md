@@ -10,4 +10,4 @@ At the core of everything we do is Matchr Magic - our way of building long-lasti
 
 We believe the best results happen when people connect, learn, and inspire each other. That’s why we invest in our community through initiatives like The Recruitment Conference (TRC) and Leadership Events, bringing together talent leaders shaping the future of recruitment.
 
-Let’s build your next great team and make an impact that lasts
+Let’s build your next great team and make an impact that lasts 💜
